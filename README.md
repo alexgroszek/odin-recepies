@@ -1,0 +1,1 @@
+This will be my first project ever! I'm really excited to do this and I'm glad that i can learn new things. I will reflect on this once I'm done with this project.
